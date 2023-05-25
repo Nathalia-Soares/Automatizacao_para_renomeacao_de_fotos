@@ -1,0 +1,1 @@
+# Automatizacao_para_renomeacao_de_fotos
